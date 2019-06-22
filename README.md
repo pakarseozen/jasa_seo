@@ -1,3 +1,8 @@
 # jasa_seo
-Jasa Seo Murah 
-<a href="http://www.yanzen.asia" rel=”dofollow” title=”pakar seo”>pakar seo</a>
+
+[jasa seo](urlwww.yanzen.asia)
+
+[jasa seo murah](urlwww.yanzen.asia)
+
+[pakar seo](urlwww.yanzen.asia)
+
